@@ -4,8 +4,3 @@
 - 💞️ I’m looking to collaborate on python or other interesting projects,you guys could call on me, I expert extremely receive the messages. 
 - 📫 How to reach me by my email: 2371807684@qq.com or zhanghaomin98@163.com.  
 - COME AND FIND ME! 
-
-
-Cooper0098/Cooper0098 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
