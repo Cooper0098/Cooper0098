@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cooper0098
-- 👀 I’m interested in python and c++ , I would like to make some friends in Github. I  hope strongly the guys in Github could assist me to learn the code.Anyway, wish you guys have some funs and have a good day!  
+- 👀 I’m interested in Python and C++ , I would like to make some friends in Github. I  hope strongly the guys in Github could assist me to learn the code.Anyway, wish you guys have some funs and have a good day!  
 - 🌱 I'd love to receive information about your experience or some interesting ideas (whether algorithmic or programming), please come and talk to me, I'm a good listener.
 - 💞️I am looking for interesting projects that we can participate in together. I am very happy to participate in them. Welcome to contact me and I will reply you as soon as possible
 - 📫 How to reach me by my email: 2371807684@qq.com or zhanghaomin98@163.com.  
