@@ -1,8 +1,8 @@
-# 👋 Hi, I’m Cooper
+# 👋 Hi Guys, I’m Cooper
 
 **Love and share**  
 
   
-- 📫 How to reach me : authoritysharing@gmail.com or zhanghaomin98@163.com.
+- 📫 How to reach me : authoritysharing@gmail.com.
 - 📑 Individual Blog : https://cooper0098.github.io/
 
